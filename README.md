@@ -1,5 +1,19 @@
 #  Whatsapp Contact|Group Extractor|Filter
-# https://codecanyon.net/item/whatsapp-contacts-bulk-save-101/42487369
+
+## Download Link: 🌐 https://bit.ly/waextractall
+
+
+### ❤️ Free Download: https://bit.ly/3wWFPfP
+
+##  ❤️All Product List:🌐 https://bit.ly/alloninesocial
+### ❤️Telegram: 👉 https://t.me/IonicSupport   
+### ❤️Whatsapp  👉 http://wa.me/447999197856
+### ❤️Telegram Support Group:👉 https://t.me/+UVmjOA7wu3szYzM1
+
+### ❤️Youtube Channel 
+#### 📽 https://www.youtube.com/channel/UCz2Ti8uKwv0Fh5j5IgUTPww
+#### 📽 https://www.youtube.com/channel/UC6NZcaPmat9ooKW1yLxdnjQ
+
 
 <h2><strong>Welcome Whatsapp Contact|Group Extractor|Filter </strong></h2>
 
@@ -27,9 +41,7 @@
 
 
 <h2><strong>Whatsapp Contact|Group Extractor|Filter--- Amazing Features</strong></h2>
-<ul>
-
-       <li><p><strong>✅Installation File:</strong>You can easily install and use!</p></li>
+<ul><li><p><strong>✅Installation File:</strong>You can easily install and use!</p></li>
 	   <li><p><strong>✅Full documentation:</strong>Let you know more about the feature and details of the software!</p></li>
 	   <li><p><strong>✅Save Account Session:</strong>Automatically save the account login session,You don't have to scan the QR repeatedly</p></li>
 	   <li><p><strong>✅Support account swtich:</strong>You can switch to your new account at any time</p></li>
@@ -69,14 +81,6 @@ This feature allows you to easily find and manage specific contacts for your bus
 
 <p> <strong>Try Now:</strong> Whatsapp Contact|Group Extractor|Filter is the ultimate WhatsApp business software that will save you time
  and effort in managing your contacts and groups. Try it today and see the difference it can make for your business.</p>
-
-
-<h2><strong> How To Install</strong></h2>
-<p>we provide a installation file  easy-to-use</p>
-
- 
-<h2><strong>Runtime Environment</strong></h2>
-<p>Win7 Win8 Win10 Win11 and Win Server<p>
  
  
  
